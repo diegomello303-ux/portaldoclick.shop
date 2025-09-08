@@ -1,0 +1,1 @@
+# portaldoclick.shop
